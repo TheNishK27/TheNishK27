@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Noah, 19, Student
+- 👋 Hi, You can call me Noah, 19, Student
 - 👀 I’m interested in Coding OFC !
 - 🌱 My majors is Engineering in Electronics and Communication
 
